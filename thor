@@ -1,1 +1,1 @@
-thor id power full hero[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[s a 
+iam not thor im son of thor
