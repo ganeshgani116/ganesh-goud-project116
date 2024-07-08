@@ -1,0 +1,1 @@
+thor id power full hero[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[s a 
